@@ -1,4 +1,4 @@
-### Hi there 👋
+### Namaste _/\_
 
 <!--
 **namamidust/namamidust** is a ✨ _special_ ✨ repository because its `about the topics you'll love` (this file) appears on your GitHub profile.
